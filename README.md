@@ -1,8 +1,5 @@
 ### Hi there 👋
 
-<!--
-**1annn/1annn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 Here are some ideas to get you started:
 
 I tHINKASKDKAD,AJW A NBH JMANJSDAD
